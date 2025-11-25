@@ -1,0 +1,1 @@
+# Krishi-Patra-Dynamic-Crop-Finance-Platform
